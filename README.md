@@ -1,1 +1,0 @@
-# explore.samsung2u.com
